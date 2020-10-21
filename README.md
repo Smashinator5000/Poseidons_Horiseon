@@ -1,1 +1,1 @@
-I am working on making this assignment work. I was really confused but things are starting to click.
+I have been wanting to work on making this assignment work. I was really confused but things are starting to click. And I believe I was able to finish everything I need to do. I am looking forward to seeing how I did. 
